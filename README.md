@@ -1,3 +1,4 @@
+https://www.instagram.com/reel/DYh9LmKoxcH/?igsh=bnpyNzlzeGM1bHZ6
 # Stop Slop
 
 A skill for removing AI tells from prose.
